@@ -1,4 +1,4 @@
-# Josh Malina -- IFS Coaching
+# Josh Malina - IFS Coaching
 
 Hi! I'm Josh. I am an Internal Family Systems (IFS) Coach and Mindfulness teacher living and working in Washington D.C.
 
