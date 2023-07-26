@@ -1,10 +1,10 @@
-# Josh Malina - IFS Coaching
+# Josh Malina - Mental Health Coach
 
-Hi! I'm Josh. I am an Internal Family Systems (IFS) Coach and Mindfulness teacher living and working in Washington D.C.
+Hi! I'm Josh. I am a mental health coach specializing in Internal Family Systems (IFS), a mindfulness teacher, and a software developer. I live and work in Washington D.C.
 
 ## About
 
-I beleive that real healing is possible, and through tools like the Internal Family Systems model, and mindfulness based practices, we can make real progress inestablishing space, freedom and growth in our minds and in our lives.
+I beleive that real healing is possible, and through tools like Internal Family Systems and mindfulness based practices, we can make real progress in establishing space, freedom and growth in our minds and in our lives.
 
 I have been a daily meditator since 2017, and try to attend a retreat once a year. In 2023, I started  teaching Saturday mindfulness classes to women transitioning out of homelessness. I took Derek Scott's IFSCA stepping stones course. I am also the teacher coordinator for the Sunday night sangha, Downtown Dharma, in Washington D.C.
 
