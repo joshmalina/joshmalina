@@ -4,7 +4,7 @@ Hi! I'm Josh. I am a mental health coach specializing in Internal Family Systems
 
 ## About
 
-I beleive that real healing is possible, and through tools like Internal Family Systems and mindfulness based practices, we can make real progress in establishing space, freedom and growth in our minds and in our lives.
+I believe that real healing is possible, and through tools like Internal Family Systems and mindfulness based practices, we can make real progress in establishing space, freedom and growth in our minds and in our lives.
 
 I have been a daily meditator since 2017, and try to attend a retreat once a year.
 
